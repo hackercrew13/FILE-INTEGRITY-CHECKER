@@ -90,3 +90,6 @@ HARIVIKAS M
 
 **OUTPUT**
 
+
+<img width="1440" alt="Image" src="https://github.com/user-attachments/assets/6150e5ae-31ab-46f4-b0e2-5d17ba77ae31" />
+
